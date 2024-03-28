@@ -2,7 +2,7 @@
 - 
 - 👀 I’m interested in games, sport and medical related activities
 - 
-- 💞️ I’m looking to collaborate on open source project
+- 💞️ I’m open to collaborate on open source project
 - 📫 My email addresss is abeebdon@gmail.com and you can also reach me with this number +2349075318511.
 
 <!---
